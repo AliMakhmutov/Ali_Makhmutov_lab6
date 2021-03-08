@@ -1,0 +1,1 @@
+# Ali_Makhmutov_lab6
